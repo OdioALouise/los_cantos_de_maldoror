@@ -6,3 +6,5 @@ Favor escritores subir final de capítulo!!!
 Recompensa: envío de correo felicitándolo por el trabajo.
 
 hay que ser buena gente che!! muy bueno ;) 
+
+Sebastián: un poco dificil seguir un hilo en la escritura 
