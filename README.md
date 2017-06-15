@@ -5,4 +5,4 @@ El escritor debe ser capaz de generar el final de la historia, el total del cap�
 Favor escritores subir final de capítulo!!!
 Recompensa: envío de correo felicitándolo por el trabajo.
 
-Sebastián: bien escrito, es bueno el mensaje y la lectura es llevadera, felicitaciones por el trabajo!!!
+Un final bastante bueno!! El cual nos deja con la pregunta ¿que pasara luego?
