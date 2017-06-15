@@ -7,3 +7,4 @@ Recompensa: envío de correo felicitándolo por el trabajo.
 
 
 Sebastián: Excelente historia, describe los sentimientos de la mujer y su finalidad, el mensaje final es impactante. Muy bien redactado.
+Camila: Muy buena la historia brian, te felicito! un lujo  
