@@ -4,3 +4,5 @@ Se busca Escritor que finalice este capítulo!!!!
 El escritor debe ser capaz de generar el final de la historia, el total del capítulo debe contener a lo sumo tres páginas.
 Favor escritores subir final de capítulo!!!
 Recompensa: envío de correo felicitándolo por el trabajo.
+
+hay que ser buena gente che!! muy bueno ;) 
